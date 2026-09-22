@@ -232,4 +232,4 @@ Rakuten TV is offered as a **full free version** with all features and updates i
 Start your streaming journey today by downloading **Rakuten TV free**! Enjoy the latest movies and series at your fingertips.
 
 ---
-**Last updated:** 2026-09-21 22:59:27 UTC
+**Last updated:** 2026-09-22 01:33:36 UTC
